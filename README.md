@@ -1,7 +1,3 @@
-# 💫 About Me:
-Olá, @kelitondossan<br>👀 meu interesse e conhecimento, quanto mais melhor!<br>🌱 no momento estou aprendendo Desenvolvimento mobile ...<br>💞️ estou procurando colabora para trabalhos voluntartio para levar connhecimento sobre a tecnologia para todo canto do país ...<br>📫@keliotn_santos00, 79998734948, keliton-santos-linkedlin
-
-
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/Keliton_santos00) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/Olá, @kelitondossan 👀 meu interesse e conhecimento, quanto mais melhor! 🌱 no momento estou aprendendo Desenvolvimento mobile ... 💞️ estou procurando colabora para trabalhos voluntartio para levar connhecimento sobre a tecnologia para todo canto do país ... 📫@keliotn_santos00, 79998734948, keliton-santos-linkedlin ) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/c/https://youtu.be/Yf7ieDKmUsg) 
 
